@@ -1,5 +1,5 @@
 #mikerlinks
-https://sites.google.com/view/oldmikerssite/home (since I made a big mistake in the other site I have to restart)
+https://sites.google.com/view/oldmikersite/home (since I made a big mistake in the other site I have to restart)
 youngmikers (snap)
 
 
