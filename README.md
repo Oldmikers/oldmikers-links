@@ -1,7 +1,10 @@
 #mikerlinks
 https://sites.google.com/view/oldmikersite/home (since I made a big mistake in the other site I have to restart)
 youngmikers (snap)
+backup links: https://sites.google.com/view/oldmikersite/home https://sites.google.com/view/oldmikersite/home https://sites.google.com/view/gabewatchsp0rn/home
+https://sites.google.com/view/oldmilkerssite/home
 
+https://sites.google.com/view/testsitepoldmikers/home (old site)
 
 
 Proxys
