@@ -1,8 +1,6 @@
 #mikerlinks
-https://sites.google.com/view/oldmikersite/home (since I made a big mistake in the other site I have to restart)
+https://sites.google.com/view/oldmikerssite/home (since I made a big mistake in the other site I have to restart)
 youngmikers (snap)
-backup links: https://sites.google.com/view/oldmikersite/home https://sites.google.com/view/oldmikersite/home https://sites.google.com/view/gabewatchsp0rn/home
-https://sites.google.com/view/oldmilkerssite/home https://sites.google.com/view/cubanmikessite/home
 
  oldmikers#4644 (my discord) 
 Proxys (below)
