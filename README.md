@@ -1,6 +1,4 @@
 # MIKERLINKS
-https://sites.google.com/view/testsitepoldmikers/home (not full screen site test site for me to learn how google sites works backup incase full screen site isn't done)
-
 https://sites.google.com/view/oldmikerssite/home (since I made a big mistake in the other site I have to restart)
 youngmikers (snap)
 
